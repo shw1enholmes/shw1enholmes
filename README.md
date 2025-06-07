@@ -1,7 +1,11 @@
-.
+<p align="center"> <a href="https://shwinnexplosives.straw.page">𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</a>‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ୨ৎ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ <a href="https://shwinngimmicks.straw.page">𝐠𝐢𝐦𝐦𝐢𝐜𝐤𝐬</a>  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ୨ৎ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ <a href="https://en.pronouns.page/@Shw1nn">𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬</a>  ‎ ‎ ‎ ‎ ‎ <p align="center">‎
+<p align="center">
+ <img src=https://files.catbox.moe/8t2dn1.jpg>
+</p>
 
-![bob](https://github.com/user-attachments/assets/756c0358-630f-4ca8-9473-8a1f84569694)
-
-testing
-
-GUYS HOW DO I ALIGN THE IMAGE TO THE CENTER. IM GOING INSANE.
+<p align="center">
+⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟⠀, ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟  ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,
+</p>
+<p align="center">
+hi this a wip
+</p>
