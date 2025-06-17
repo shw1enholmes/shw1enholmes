@@ -7,5 +7,5 @@
 ⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟⠀, ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟  ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,
 </p>
 <p align="center">
- hi im erik. still working on my straws so just read this for now. im very socially awkward and will just sit quietly sometimes. tysm to everyone who sent me something on straw i promise one day ill make a gallery teehee.. not been in a sociable mood lately sorry if im kinda dry or quiet im still the same trust!!! i love cherik and charles xavier if i didnt make that clear enough. i am also umm witewally magneto,, ok bye! runs
+ hi im erik. still working on my straws so just read this for now. im very socially awkward and will just sit quietly sometimes. tysm to everyone who sent me something on straw i promise one day ill make a gallery teehee.. not been in a sociable mood lately sorry if im kinda distant or quiet im still the same trust!!! i love cherik and charles xavier if i didnt make that clear enough. i am also umm witewally magneto,, ok bye! runs
 </p>
