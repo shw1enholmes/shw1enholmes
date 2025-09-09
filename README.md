@@ -7,5 +7,5 @@
 ⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟⠀, ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟  ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,⠀ ◞  ྀི◟ ͜  ◞ ྀི◟  ͜  ◞ ྀི◟ ,
 </p>
 <p align="center">
- hi lalalala dont look ok wip
+ hi dont look ok wip
 </p>
