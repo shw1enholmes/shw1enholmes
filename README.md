@@ -2,7 +2,7 @@
 
  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  straw ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  atabook ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎   ‎  [pronouns](https://en.pronouns.com/@Shw1nn)   ‎ ‎ ‎ ‎ ‎   ‎ 
 <p align="center"><img src=https://files.catbox.moe/do4q4e.png><p align="center">
-<p align="center"><img src=https://files.catbox.moe/ym1d2c.gif><p align="center">
+<p align="center"><img src=https://files.catbox.moe/ym1d2c.gif> <img src=https://files.catbox.moe/yry33y.gif> <img src=https://files.catbox.moe/od9dz9.gif><p align="center">
 <p align="center">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━<p align="center">
 <p align="center"><img src=https://files.catbox.moe/x2hi8u.gif><p align="center">
   
@@ -13,3 +13,5 @@ __BYI__ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  . . .
 <p align="center">i can be moody somedays and avoid talking or interaction. i also dont take overly rude/dry messages well.. especially with being ignored. i tend to be cautious and anxious around certain people, if i ever act like youre not there youre probably too cool to me or im just not fond of you LOL. sorry if i come off as rude or offensive, do let me know !!<p align="center">
 <p align="center">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━<p align="center">
 <p align="center"><img src=https://files.catbox.moe/f417ce.png><p align="center">
+ 
+[this me twin](https://www.youtube.com/watch?v=7HluH_mEmao)
