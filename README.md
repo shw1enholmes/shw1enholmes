@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=shw1enholmes&label=IL0VETV&color=cf0000&)
 <p align="center">  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  hi dont look ok wip ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ <p align="center">‎
 <p align="center"><img src=https://files.catbox.moe/do4q4e.png><p align="center">
 <p align="center"><img src=https://files.catbox.moe/ym1d2c.gif><p align="center">
