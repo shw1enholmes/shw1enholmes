@@ -4,12 +4,5 @@
 <p align="center"><img src=https://files.catbox.moe/sy3pyd.png><p align="center">
 <p align="center"><img src=https://files.catbox.moe/ym1d2c.gif> <img src=https://files.catbox.moe/yry33y.gif> <img src=https://files.catbox.moe/od9dz9.gif><p align="center">
 <p align="center">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━<p align="center">
-  
-__INFO__ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  . . .
-<p align="center">hellohello! im Shwinn, mostly known as Erik with friends ^_^ read this for AWESOME facts about me: im very serious about my kins and fixations.. he/him and male pronouns preferred but idc if you call me anything else ! im an adult but i dont think like one so uhhh blehh idk. im a very very awkward person with people im not close with im sorry, it really depends on my mood. i dont do srs roleplays!! if you catch me acting in character im just messing around or being myself. dont know what else to add here, im pretty sure 70% of you would not read this ! i lovee alot of things from arts and languages to bugs and animals. i talk in broken english for fun ! dont like using labels but yes im fictionkin and a selfshipper.<p align="center">
-  
-__BYI__ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  . . .
-<p align="center">i can be moody somedays and avoid talking or interaction. i also dont take overly rude/dry messages well.. especially with being ignored. i tend to be cautious and anxious around certain people, if i ever act like youre not there youre probably too cool to me or im just not fond of you LOL. sorry if i come off as rude or offensive, do let me know !!<p align="center">
-<p align="center">━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━<p align="center">
-
+ 
 [this me twin](https://www.youtube.com/watch?v=7HluH_mEmao)‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  
