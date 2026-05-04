@@ -1,4 +1,4 @@
-<p align="center"><img src="https://komarev.com/ghpvc/?username=shw1enholmes&label=mousebites&color=6e3803"<p align="center">
+<p align="center"><img src="https://komarev.com/ghpvc/?username=shw1enholmes&label=clients&color=6e3803"<p align="center">
 
 <br>
 
