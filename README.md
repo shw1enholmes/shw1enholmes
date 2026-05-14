@@ -6,4 +6,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpg](https://shwholmes.straw.page)ㅤㅤㅤㅤ[pronouns](https://pronouns.cc/@kupfrnickel)ㅤㅤㅤㅤ[atabook](https://221bbakerstreet.atabook.org)
 <br>
-[DRAMAAA](https://rentry.co/whatthehellbuddy)
+[❗ANDREJ PLS READ THIS.](https://rentry.co/whatthehellbuddy)
